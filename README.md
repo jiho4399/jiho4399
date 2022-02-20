@@ -1,2 +1,2 @@
-# Hi, there! I'm JIHO :wave:
+# Hi, there! I'm JI HO :wave:
 
